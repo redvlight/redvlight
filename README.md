@@ -1,1 +1,1 @@
-(https://64.media.tumblr.com/c12f1d35c55d13df341fd55d52ec0fc1/320c9144c24c782d-38/s100x200/8d02b13b0d1546c63c30c71c2cce422a614a1560.pnj) 
+![tumblr_eda9ea052819fe88f2a1be0cc6017b67_f3033b5d_250](https://github.com/user-attachments/assets/0f23237e-3a84-4140-b2b7-9e640c150e39) , gladly stole this from felix
