@@ -6,5 +6,5 @@
 ⠀⠀⠀⠀![8545d366aabf8ce3da5729b0be93f001](https://github.com/user-attachments/assets/05dc8a1e-72a1-4a1c-ab54-5a8ef4e159b5)
 
 
-⠀⠀ ⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀![Senza titolo 41_20241109085229](https://github.com/user-attachments/assets/6744b63b-26e4-43f3-87f2-e945a1dac974)
+⠀⠀ ⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀
 ![Senza titolo 41_20241109090003](https://github.com/user-attachments/assets/980214e8-a53e-4c15-b8a1-6271f098dd1f)
